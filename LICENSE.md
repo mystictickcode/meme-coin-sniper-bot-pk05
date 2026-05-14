@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with advanced meme coin sniper bot | priority-gas-auctions + blockchain-scanning, the #1 meme coin sniper bot. Includes priority-gas-auctions and
 
 
 
